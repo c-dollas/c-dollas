@@ -3,7 +3,7 @@
 - Digital Privacy, Anonymity, and Security. 
 - Finding ways to be more efficient in all areas of life. 
 - I value self development. 
-- A man of Service of Integrity. 
+- A man of Service and Integrity. 
 
 
 <!---
